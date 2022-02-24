@@ -1,3 +1,18 @@
+## 【翻墙梯子】科学上网VPN翻墙软件和机场梯子推荐(2022年)
+
+
+### 补充：测评更新比较慢，大家优先看排行榜：
+
+|  梯子排行榜   | 推荐指数 | 官网地址  | 备用网址1 | 备用网址2 |
+|  ----  | ----  | ---- | ---- | ---- |
+| Ivacy梯子 | 👍👍👍👍👍 | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=wuxianab&data2=wuxianff2) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/wuxianab/wuxianff2) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=wuxianab&data2=wuxianff2) |
+| Nord梯子 | 👍👍👍👍 | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=wuxianab&aff_click_id=wuxianff2) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=gitwuxianab&aff_sub=wuxianab&aff_sub2=wuxianff2) | - |
+| Express梯子 | 👍👍👍👍 | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=wuxianab&data1=wuxianff2) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=wuxianab&data1=wuxianff2) | - |
+| 熊猫梯子 | 👍👍👍 | [Panda官方网址](https://www.pankvyh.xyz/r/22216799) | [Panda备用地址1](https://www.pantoto.xyz/r/22216799) | [Panda备用地址2](https://pandavpnpro.com/r/22216799) |
+ | Strong梯子 | 👍👍👍 | [Strong官方网址](https://strongvpn.com/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff2) | [Strong备用网址1](https://reliablevpn.net/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff2) | [Strong备用网址2](https://strongtech.org/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff2) |
+
+---
+
 <div class="gb-container gb-container-4b3ebfac"><div class="gb-inside-container">
 <h1 class="gb-headline gb-headline-293e93ff gb-headline-text">【科学上网】VPN翻墙软件和机场梯子推荐(2022年)</h1>
 <div class="gb-container gb-container-b7701407 inline-post-meta-area"><div class="gb-inside-container">
