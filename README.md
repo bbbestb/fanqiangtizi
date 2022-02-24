@@ -5,11 +5,11 @@
 
 |  梯子排行榜   | 推荐指数 | 官网地址  | 备用网址1 | 备用网址2 |
 |  ----  | ----  | ---- | ---- | ---- |
-| Ivacy梯子 | 👍👍👍👍👍 | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=wuxianab&data2=wuxianff2) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/wuxianab/wuxianff2) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=wuxianab&data2=wuxianff2) |
-| Nord梯子 | 👍👍👍👍 | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=wuxianab&aff_click_id=wuxianff2) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=gitwuxianab&aff_sub=wuxianab&aff_sub2=wuxianff2) | - |
-| Express梯子 | 👍👍👍👍 | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=wuxianab&data1=wuxianff2) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=wuxianab&data1=wuxianff2) | - |
+| Ivacy梯子 | 👍👍👍👍👍 | [Ivacy中文地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=gitwuxianab&data2=fanqiangtizi) | [Ivacy官网地址1](https://billing.ivacy.com/page/91814/6f38cc97/CHN/gitwuxianab/fanqiangtizi) | [Ivacy官网地址2](https://www.ivacy.com/best-vpn-deal-of-2022/?aff=91814&source=Aff&data1=gitwuxianab&data2=fanqiangtizi) |
+| Nord梯子 | 👍👍👍👍 | [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitwuxianab&aff_click_id=fanqiangtizi) | [Nord备用地址1](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&source=gitgitwuxianab&aff_sub=gitwuxianab&aff_sub2=fanqiangtizi) | - |
+| Express梯子 | 👍👍👍👍 | [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitwuxianab&data1=fanqiangtizi) | [Express备用地址1](https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitwuxianab&data1=fanqiangtizi) | [备用网址2](https://www.linkev.com/?a_fid=tizi_vpn&chan=gitgitwuxianab&data1=fanqiangtizi) |
 | 熊猫梯子 | 👍👍👍 | [Panda官方网址](https://www.pankvyh.xyz/r/22216799) | [Panda备用地址1](https://www.pantoto.xyz/r/22216799) | [Panda备用地址2](https://pandavpnpro.com/r/22216799) |
- | Strong梯子 | 👍👍👍 | [Strong官方网址](https://strongvpn.com/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff2) | [Strong备用网址1](https://reliablevpn.net/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff2) | [Strong备用网址2](https://strongtech.org/?tr_aid=5f856c291d7a8&data1=wuxianff&data2=wuxianff2) |
+ | Strong梯子 | 👍👍👍 | [Strong官方网址](https://strongvpn.com/?tr_aid=5f856c291d7a8&data1=gitgitwuxianab&data2=fanqiangtizi) | [Strong备用网址1](https://reliablevpn.net/?tr_aid=5f856c291d7a8&data1=gitgitwuxianab&data2=fanqiangtizi) | [Strong备用网址2](https://strongtech.org/?tr_aid=5f856c291d7a8&data1=gitgitwuxianab&data2=fanqiangtizi) |
 
 ---
 
@@ -30,7 +30,7 @@
 <p>翻墙和科学上网能干什么？不管是使用Google/Gmail全家桶，还是通过Facebook、Twitter、Instagram与朋友家人联系，亦或者翻墙解锁Netflix、BBC iPlayer、Disney+等国外流媒体平台都需要。</p>
 <p>当然翻墙方式多种多样，你可能听说过VPN、SSR、WireGuard等专业词汇，这些都是能用于科学上网的VPN协议，但是各有优缺点。还可能听说过蓝灯、赛风等免费翻墙软件，不过由于防火长城不断升级，这些翻墙VPN软件早已失效了。</p>
 <p>如果你不想读完整篇文章，并且正在寻找一款好用的翻墙软件，可以选择以下经过我测试的VPN(本文后半部分有关于每款翻墙软件的详细测评)：</p>
-<div class="purple-bar-back"><ul><li>1.<a href="https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitwuxianab&data1=fanqiangtizi" target="_blank" rel="noopener">ExpressVPN</a> —— 最稳定的中国翻墙VPN软件，提供香港、台湾、日本等近距离节点，速度更快、连接更稳定。</li><li>2.<a href="https://billing.purevpn.com/aff.php?aff=42611&data1=gitwuxianab&data2=fanqiangtizi" target="_blank" rel="noreferrer noopener">PureVPN</a> —— 性价比高，全中文支持，提供多种设备支持，24/7在线客服。</li><li>3.<a href="https://get.surfshark.net/aff_c?offer_id=6&aff_id=3401&data1=gitwuxianab&data2=fanqiangtizi" target="_blank" rel="noreferrer noopener">Surfshark</a> —— 美国IP节点多，服务器速度快，不限制设备连接数量。</li><li>4.<a href="https://www.pankvyh.xyz/r/22216799" target="_blank" rel="noreferrer noopener">Panda VPN</a> —— 华人团队开发，专为中国翻墙定制，多种协议支持。</li><li>5.<a href="https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitwuxianab&aff_click_id=fanqiangtizi" target="_blank" rel="noreferrer noopener">NordVPN</a> —— 国外知名VPN软件，信用良好，伪装模式可以在中国使用。</li></ul></div>
+<div class="purple-bar-back"><ul><li>1.<a href="https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitgitwuxianab&data1=fanqiangtizi" target="_blank" rel="noopener">ExpressVPN</a> —— 最稳定的中国翻墙VPN软件，提供香港、台湾、日本等近距离节点，速度更快、连接更稳定。</li><li>2.<a href="https://billing.purevpn.com/aff.php?aff=42611&data1=gitgitwuxianab&data2=fanqiangtizi" target="_blank" rel="noreferrer noopener">PureVPN</a> —— 性价比高，全中文支持，提供多种设备支持，24/7在线客服。</li><li>3.<a href="https://get.surfshark.net/aff_c?offer_id=6&aff_id=3401&data1=gitgitwuxianab&data2=fanqiangtizi" target="_blank" rel="noreferrer noopener">Surfshark</a> —— 美国IP节点多，服务器速度快，不限制设备连接数量。</li><li>4.<a href="https://www.pankvyh.xyz/r/22216799" target="_blank" rel="noreferrer noopener">Panda VPN</a> —— 华人团队开发，专为中国翻墙定制，多种协议支持。</li><li>5.<a href="https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitgitwuxianab&aff_click_id=fanqiangtizi" target="_blank" rel="noreferrer noopener">NordVPN</a> —— 国外知名VPN软件，信用良好，伪装模式可以在中国使用。</li></ul></div>
 <h2 id="翻墙与科学上网的由来">翻墙与科学上网的由来</h2>
 <p>这一切都要从防火长城说起，防火长城是从Great Firewall翻译过来的，是国外对中国网络防火墙的称呼，也被称做&#8221;GFW&#8221;，中国网民更喜欢称它为&#8221;墙&#8221;。</p>
 <p>那么什么是科学上网呢？科学上网的意思是，通过科学技术的方法绕过防火长城的封锁，也被称做&#8221;翻墙&#8221;。而根据不同的技术，不同的科学上网工具又被称做翻墙软件、翻墙VPN、梯子。</p>
@@ -49,7 +49,7 @@
 <p>总的来说，如果你想长期稳定地在中国使用VPN翻墙软件，那么购买国外VPN翻墙是最推荐的方式。而如果你只是平时偶尔Google查资料，那么机场/梯子或许也是个办法，建议购买月付套餐就行了，以免跑路。</p>
 <h2 id="翻墙vpn软件推荐">翻墙VPN软件推荐</h2>
 <p>以下翻墙软件经过我的测试，在中国的稳定性、速度都不错，有些是翻墙VPN软件，有些是安全的机场/梯子，可以根据自己需求选择合适的科学上网工具。我在<a href="/best-vpn-china/">中国VPN推荐</a>指南中，介绍了关于使用每款科学上网软件的详细教程。</p>
-<h3 id="1-expressvpn-速度最快的翻墙软件">1.<a href="https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitwuxianab&data1=fanqiangtizi" target="_blank" rel="noopener">ExpressVPN</a> —— 速度最快的翻墙软件</h3>
+<h3 id="1-expressvpn-速度最快的翻墙软件">1.<a href="https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitgitwuxianab&data1=fanqiangtizi" target="_blank" rel="noopener">ExpressVPN</a> —— 速度最快的翻墙软件</h3>
 <p>说到翻墙与科学上网，最耳熟能详的名字就是ExpressVPN，这也证明了它在中国的翻墙能力，凭借十多年的VPN软件经验技术，使得ExpressVPN应对防火长城更加得心应手。</p>
 <div class="wp-block-image"><figure class="aligncenter size-full"><img loading="lazy" width="800" height="393" src="https://qiangup.com/wp-content/uploads/2021/12/expressvpn-homepage.jpg" alt="expressvpn官网" class="wp-image-2360" srcset="https://qiangup.com/wp-content/uploads/2021/12/expressvpn-homepage.jpg 800w, https://qiangup.com/wp-content/uploads/2021/12/expressvpn-homepage-300x147.jpg 300w, https://qiangup.com/wp-content/uploads/2021/12/expressvpn-homepage-768x377.jpg 768w" sizes="(max-width: 800px) 100vw, 800px" /></figure></div>
 <p>凭借ExpressVPN部署在全球94个国家/地区的3000+台服务器，你可以享受香港、台湾、日本、新加坡等低延迟IP节点，访问Google、Gmail、YouTube、Facebook、Twitter等网页速度更快。</p>
@@ -61,10 +61,10 @@
 <p>作为全球知名VPN，ExpressVPN具有良好的信用和口碑，所有套餐都支持30天退款保证。如果在使用中遇到问题，可以联系24/7在线客服解决。</p>
 <p>期间如果不满意，可以申请全额退款，可以说是一个免费试用VPN的机会。ExpressVPN价格确实不便宜，但是利用本站提供的ExpressVPN优惠链接，可以为你节省一些费用。</p>
 <div class="wp-container-62135b5ea46a6 wp-block-buttons">
-<div class="wp-block-button is-style-fill"><a class="wp-block-button__link" href="https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitwuxianab&data1=fanqiangtizi" style="border-radius:30px" target="_blank" rel="noopener">获取ExpressVPN优惠</a></div>
+<div class="wp-block-button is-style-fill"><a class="wp-block-button__link" href="https://www.xvuslink.com/?a_fid=tizi_vpn&chan=gitgitwuxianab&data1=fanqiangtizi" style="border-radius:30px" target="_blank" rel="noopener">获取ExpressVPN优惠</a></div>
 </div>
 <hr>
-<h3 id="2-purevpn-便宜性价比高的翻墙软件">2.<a href="https://billing.purevpn.com/aff.php?aff=42611&data1=gitwuxianab&data2=fanqiangtizi" target="_blank" rel="noreferrer noopener">PureVPN</a> —— 便宜性价比高的翻墙软件</h3>
+<h3 id="2-purevpn-便宜性价比高的翻墙软件">2.<a href="https://billing.purevpn.com/aff.php?aff=42611&data1=gitgitwuxianab&data2=fanqiangtizi" target="_blank" rel="noreferrer noopener">PureVPN</a> —— 便宜性价比高的翻墙软件</h3>
 <p>PureVPN也是一个老牌VPN了，早期注册在香港，一直为中国用户提供优质的翻墙软件。对于中国网络环境也比较了解，官网和VPN软件全中文支持。</p>
 <div class="wp-block-image"><figure class="aligncenter size-full"><img loading="lazy" width="800" height="390" src="https://qiangup.com/wp-content/uploads/2021/12/purevpn-homepage.jpg" alt="purevpn官网" class="wp-image-2363" srcset="https://qiangup.com/wp-content/uploads/2021/12/purevpn-homepage.jpg 800w, https://qiangup.com/wp-content/uploads/2021/12/purevpn-homepage-300x146.jpg 300w, https://qiangup.com/wp-content/uploads/2021/12/purevpn-homepage-768x374.jpg 768w" sizes="(max-width: 800px) 100vw, 800px" /></figure></div>
 <p>对20多种常见设备平台的支持，使得PureVPN提供的应用程序覆盖Windows、 Mac、Linux、iOS、Android、路由器以及Firefox和Chrome浏览器扩展。客户端翻墙VPN软件简单易用，Streaming视频和Internet Freedom模式可以分别用于观看视频和科学上网。</p>
@@ -72,13 +72,13 @@
 <div class="wp-block-image"><figure class="aligncenter size-full"><img loading="lazy" width="250" height="252" src="https://qiangup.com/wp-content/uploads/2022/01/purevpn-price.jpg" alt="purevpn价格" class="wp-image-2586" srcset="https://qiangup.com/wp-content/uploads/2022/01/purevpn-price.jpg 250w, https://qiangup.com/wp-content/uploads/2022/01/purevpn-price-150x150.jpg 150w" sizes="(max-width: 250px) 100vw, 250px" /></figure></div>
 <p>PureVPN价格相对便宜，同样提供31天退款保证，一个账号允许同时连接10台设备支持。支持Visa信用卡、银联信用卡、PayPal等支持方式。多加几美元还可获得专用IP、端口转发、DDos保护等功能。</p>
 <div class="wp-container-62135b5ea49a3 wp-block-buttons">
-<div class="wp-block-button"><a class="wp-block-button__link" href="https://billing.purevpn.com/aff.php?aff=42611&data1=gitwuxianab&data2=fanqiangtizi" style="border-radius:30px" target="_blank" rel="noreferrer noopener">获取PureVPN优惠</a></div>
+<div class="wp-block-button"><a class="wp-block-button__link" href="https://billing.purevpn.com/aff.php?aff=42611&data1=gitgitwuxianab&data2=fanqiangtizi" style="border-radius:30px" target="_blank" rel="noreferrer noopener">获取PureVPN优惠</a></div>
 </div>
 <p></p>
 <p>安全性自然不用说，Kill Switch可以保证VPN意外断开连接的时候数据不会泄露。军用机256位加密算法，让用户在连接公共WiFi的时候更加安全。</p>
 <p>DNS泄露保护可以避免数据泄露，并且隐藏你的真实IP地址，Web RTC可以保护浏览器访问数据。客户端软件提供也不存在IPV6泄露的问题。</p>
 <hr>
-<h3 id="3-surfshark-不限设备数量的翻墙软件">3.<a href="https://get.surfshark.net/aff_c?offer_id=6&aff_id=3401&data1=gitwuxianab&data2=fanqiangtizi" target="_blank" rel="noreferrer noopener">Surfshark</a> —— 不限设备数量的翻墙软件</h3>
+<h3 id="3-surfshark-不限设备数量的翻墙软件">3.<a href="https://get.surfshark.net/aff_c?offer_id=6&aff_id=3401&data1=gitgitwuxianab&data2=fanqiangtizi" target="_blank" rel="noreferrer noopener">Surfshark</a> —— 不限设备数量的翻墙软件</h3>
 <p>Surfshark这两年发展非常快，名气直逼一线知名VPN翻墙软件。官网全中文支持对中国用户也比较友好，独具特色的翻墙功能，也是Surfshark在中国翻墙稳定的原因。</p>
 <div class="wp-block-image"><figure class="aligncenter size-full"><img loading="lazy" width="800" height="394" src="https://qiangup.com/wp-content/uploads/2021/12/surfshark-homepage.jpg" alt="surfshark官网" class="wp-image-2364" srcset="https://qiangup.com/wp-content/uploads/2021/12/surfshark-homepage.jpg 800w, https://qiangup.com/wp-content/uploads/2021/12/surfshark-homepage-300x148.jpg 300w, https://qiangup.com/wp-content/uploads/2021/12/surfshark-homepage-768x378.jpg 768w" sizes="(max-width: 800px) 100vw, 800px" /></figure></div>
 <p>全球65个国家/地区拥有超过3200台服务器，可以满足你任何自由上网的需求。每台VPN服务器都有专用DNS服务器，并且不会记录用户浏览日志。</p>
@@ -88,7 +88,7 @@
 <p>Surfshark算得上是一款<a href="/cheap-vpn/">便宜的VPN</a>翻墙软件，包年套餐每月只需$2.49每月，每年黑五优惠活动期间价格低至$2.21。</p>
 <p>提供30天退款保证，以及24/7在线客服和邮件支持。支持Visa信用卡、PayPal等付款方式，如果你当前是香港IP，可以通过支付宝付款。还支持Google Pay、Amazon Pay以及加密货币。</p>
 <div class="wp-container-62135b5ea4c90 wp-block-buttons">
-<div class="wp-block-button"><a class="wp-block-button__link" href="https://get.surfshark.net/aff_c?offer_id=6&aff_id=3401&data1=gitwuxianab&data2=fanqiangtizi" style="border-radius:30px" target="_blank" rel="noreferrer noopener">获取Surfshark优惠</a></div>
+<div class="wp-block-button"><a class="wp-block-button__link" href="https://get.surfshark.net/aff_c?offer_id=6&aff_id=3401&data1=gitgitwuxianab&data2=fanqiangtizi" style="border-radius:30px" target="_blank" rel="noreferrer noopener">获取Surfshark优惠</a></div>
 </div>
 <p></p>
 <p>使用行业领先的AES-256-GCM加密算法，可以有效地保护个人数据，并且已经通过了Cure53安全机构的审查。</p>
@@ -109,7 +109,7 @@
 <p>虽然Panda VPN属于翻墙机场，但是却具备翻墙VPN的安全性。通过ECC安全加密技术，可以保护用户的访问数据。无日志记录策略，确保了用户的隐私安全。</p>
 <p>而且由于服务器和团队都不在中国大陆境内，因此不用担心法律法规问题。在注册账号的时候，甚至可以不用邮箱，而使用服务器生成数字账户，还可以通过比特币支付，进一步提升隐私性。</p>
 <hr>
-<h3 id="5-nordvpn-安全性高的翻墙软件">5.<a href="https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitwuxianab&aff_click_id=fanqiangtizi" target="_blank" rel="noreferrer noopener">NordVPN</a> —— 安全性高的翻墙软件</h3>
+<h3 id="5-nordvpn-安全性高的翻墙软件">5.<a href="https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitgitwuxianab&aff_click_id=fanqiangtizi" target="_blank" rel="noreferrer noopener">NordVPN</a> —— 安全性高的翻墙软件</h3>
 <p>NordVPN提供了最新的混淆模式，专门用于在中国翻墙使用，很多关于NordVPN的测评其实已经过时，在完成技术升级之后NordVPN大幅提升了翻墙软件的稳定性和速度。</p>
 <div class="wp-block-image"><figure class="aligncenter size-full"><img loading="lazy" width="800" height="393" src="https://qiangup.com/wp-content/uploads/2021/12/nordvpn-homepage.jpg" alt="nordvpn官网" class="wp-image-2361" srcset="https://qiangup.com/wp-content/uploads/2021/12/nordvpn-homepage.jpg 800w, https://qiangup.com/wp-content/uploads/2021/12/nordvpn-homepage-300x147.jpg 300w, https://qiangup.com/wp-content/uploads/2021/12/nordvpn-homepage-768x377.jpg 768w" sizes="(max-width: 800px) 100vw, 800px" /></figure></div>
 <p>在60个国家/地区部署的5210+服务器可以满足众多需求，固定IP地址适合外贸人士、海外留学生在中国访问Facebook等特殊场景。还可以用于解锁Spotify、Apple Music、Tidal等国外听歌软件，对Netflix、Disney+、BBC iPlayer、Hulu等国外流媒体支持也非常好。</p>
@@ -118,7 +118,7 @@
 <p>NordVPN的2年套餐性价比非常高，在黑五、圣诞节、周年庆期间都有相当大的优惠，Visa信用卡、银联信用卡也方便中国用户购买。</p>
 <p>在购买页面会默认添加附加产品NordPass密码管理软件，不需要的话可以取消勾选。充分利用30天退款保证，不满意可以申请退款。</p>
 <div class="wp-container-62135b5ea5248 wp-block-buttons">
-<div class="wp-block-button"><a class="wp-block-button__link" href="https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitwuxianab&aff_click_id=fanqiangtizi" style="border-radius:30px" target="_blank" rel="noreferrer noopener">获取NordVPN优惠</a></div>
+<div class="wp-block-button"><a class="wp-block-button__link" href="https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=gitgitwuxianab&aff_click_id=fanqiangtizi" style="border-radius:30px" target="_blank" rel="noreferrer noopener">获取NordVPN优惠</a></div>
 </div>
 <p></p>
 <p>高级别的安全性得到了许多用户和第三方机构的认可，通过AES-256加密的数据可以保护网络数据。其具有专利的NordLynx协议不仅具有高安全性，并且也比WireGuard协议更快。</p>
